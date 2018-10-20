@@ -5,6 +5,6 @@
 3. Nutz bitte die dazu vorhergesehenden Chats auf dem Server zum schreiben!
 4. Wenn ihr dem Squad beigetreten seit, kriegt ihr zugriff auf bestimmte Channel!
 5. Seit nett zu einander.
-6. Habt Spaß im Squad
+6. Habt Spaß im 🦄Squad🦄
 
 Euer 🦄OWNER🦄
